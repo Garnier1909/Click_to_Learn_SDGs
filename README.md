@@ -1,4 +1,4 @@
-# クリックで学ぶSDGs
+# メディアアート 『クリックで学ぶSDGs』
 <img width="400" alt="スクリーンショット 2022-06-24 15 05 40" src="https://user-images.githubusercontent.com/91712904/176207149-b20991a7-5e15-4f77-886e-6cc819466fd6.png">
 
 
